@@ -1,2 +1,2 @@
 ini adalah repository pertama saya
-saya lahir di kota boyolali
+saya lahir di kota boyolali jawa tengah
